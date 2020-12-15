@@ -498,7 +498,214 @@ Medium Article DeFi DAO for NFT Wallet eVault
 
 
  
-‍
+‍TrapCha.in Documentation
+Music Streaming Service on the Harmony/Ethermint/Substrate Parachains
+
+“Viotatr Consensus”: On a new state of the system
+A faster smaller blockchain that can be run on phones using zero-knowledge proofs
+Violatr Zones: Membership => Community.Trapcha.in
+Hash/Master Node: Peer to peer network Blockchain/Root
+State Manage: All participants Agree -> Valid Update
+Blocksets Globally shared, Transaction Database
+Everyone can read entries by participation in the 
+Network Effect: Imagine a Table: and Lists:
+Of all accounts of electronic currency, In the Account of electronic currency, a simple check ensures that the only person who can transfer the money from it is holding the keys safety locks any violatrs out of the system.
+
+Public Record: LibP2PUB IPFS SWARM Cloud Architecture Distributed Publishing 
+Library of Congress => Hash = Copyrights
+Registration of Music, Video, Pictures Registrar Public
+Ex: $40 Fees to register Songs, Film, Movies, Lyrics, Albums, Payments
+
+Will violate any Un-OAUTH Signatures-Discovery
+We can register your original work on Rapchain.io
+For a fee $40 Transactions are logged on the blockchain
+Accounts Store Intellectual Property and payments
+Accounts include Private Address to Register Account
+
+PAYOLA: CASFURA Monthly subscription API
+Membership Levels: 
+Master: Invite Only
+Diamond: Sign up with ENS .ETH Address included in package deal
+Platinum: Signed
+Gold: Sign up
+Freemium: Join free followings
+
+Membership Subscription Levels “Private Chain” Enterprise Trapcha.in
+Violatr Zones Operators: “Trap Royalty” Trap Key All Access
+Diamond Level: Invite Only Limited Slashers
+Criteria: 1 million +Strong followings in the “Trap Gods” Violatr’s Game
+10 Million +Streaming
+100 Million + Youtube Views
+Label: Independant/Signed/Unsigned
+(AWS)Publisher: All Publishing or Global Pub GMR
+AWAL Harry Fox Agency, ASCAP, BMI, SESAC, SoCAN, Song Trust
+KOBALT, DGM Group, PEN Music Group, LANDR, CD Baby, DISTRO KID, Tune Core
+Sony ATV, GSO Capital Partners, Imagem Music Group, EMI Music Publishing
+Song Catalog Financing: Royalty Crowdfunding
+Negotiate Rates: Higher Royalty’s Royalty Exchange
+Copyright Digital Millineum “DMCA” ACT YouTube Music Key
+Licensing “GMR” PRO Global Music Rights
+Catalog U.S Congress Sound Exchange
+“Trap Royalties” To collect and distribute performance royalty
+Tokens: to collect and distribute TRAP Exchange Dex
+Digital Domain: Virtual Performance Royalties Hologram VR/AR
+Digital Human copies of a performance ex.”Instagram” CGI making a 
+Profit from the image and likenesses “Hologram USA-3D Model” -Alki David & Chief Keef/Peeda
+
+$15 Premium Private Pulse Evolution
+$10 Music Key YouTube 
+Smart Contracts: Trap Exchange Royalty “Crypto”
+Trustless: Universally accessible no 3rd Parties
+Trackable: Auditability Transactions can be traced
+Irreversible: Transactions are final
+Self-executing: Reduce cost Increase speed variable Use Case
+
+Membership Subscription Levels: Limited Access to Private Chain
+Platinum Level: Limited Slots 
+Criteria: 100K + Solid Following
+Publish Data:
+1 Million Streams
+1 Million YouTube Views
+Label: Signed/Unsigned or Independent
+Publisher: PRO ASCAP, SESAC, BMI, GMR
+Catalog: SoundExchange Royalty Exchange DEX’s
+
+NEW! Trap Exchange: To Collect and Distribute
+D0x 
+Licensing: Trap Key = Trap Tokens => Royalties
+Introducing ™* HPRO Virtual Performance Royalties
+VRO: Virtual RightsOrg. Collects Tokens-> Distribute Royalty
+
+Premium: includes “yourname.eth” address
+Private Master Keys + Account & PUB KEY
+Private Chain Access + Public Chain Account
+Add ons: Trap Music Keys => Private Chain Access
+Negotiate Rate: Smart Contract negotiates “Royalty”
+
+
+
+Trap Chain
+
+Gold Level: Available on ->1st Come 1st Serve til tun or “sold out”
+Membership Subscription Levels “Sold Out”
+Criteria:60K + Solid Following 
+	100K + Streams
+	100K + YouTube Views
+Label: Indie/Signed/Unsigned
+Publisher: Any, GMR, BMI, SESAC, ASCAP, SACEM
+Catalog: Sound Exchange, Royalty Exchange NFT 
+Distribution: AWAL + KOBALT Music
+Licensing: Trap Key to collect Royalties
+Intro: Virtual Rights: From Trap Tokens => VRO*™ 
+Introducing!
+Partnering with: Trapexchange.D0x
+We secure your Rights on the Blockchain “Tracking music on the Blockchain and beyond*”
+Add ons:
+Premium: Includes “yourname.eth” + Trap Key
+Trap key Master + Private + Public .ETH address + Access to Negotiate Rate on the “Private Chain” Smart Contract
+
+
+Membership Subscription levels 	Public Records Chain
+Free to join w/Premium
+Freemium: Rapchain.io Access No Private Enterprise chain access!!
+Criteria: 10K solid following
+	  1,000 Streams
+	  5,000 Youtube Views
+Label: Independant/Signed/Unsigned/Dropped
+Publisher:BMI,SESAC,ASCAP,Global PRO’s SACEM
+Catalog: Sound Exchange, Royalty Exchange NFT DEX
+Licensing: Trap exchange, partnership
+Distribution: Rapchain.io -> Public Chain
+Premium Upgrade: Options pay for “yourname.eth”
+TrapCha.in unlock ← Trapkeys ← Get Private Invite
+Lottery Winner → Unlock Private Access
+
+Auction + Votes = Upgrade winner → contest
+Upgrades: Most votes wins a nod from the Trap God’s 
+Updates from the database store
+Users can join w/email to sign up and play “Trap God’s” Game
+Upgrades allow users to greater access to “Deals”
+Premium players gain their account activated w/”theirname.eth” to access Private & Public Key address
+		Stakers
+
+Premium Subscribers can earn Trap Tokens
+NOTE:ONLY TOKEN HOLDERS CAN VOTE! To Vote.
+Token Account Holders are eligible for “RapCoin Royalty”
+“Vice City Rules” Violation
+Trap Violatrs-Violatrs vs Validators?
+Trap Tokens => TrapChain Accessibility Private
+Eligibility for Tra Tokens => Trap Keys
+In order to earn access to Trap Chain Perks
+An account holder must HODL/Have Trap Tokens
+
+TrapCha.in Portal Port 8080: Cosmos Hub
+The Trap Chain [porta;] is accessible with a Trap Key.
+
+A Trap Key is generated with a users 
+Public Key + .ETH Address = “Trap Key”
+
+Master Key
+A Master Key may own multiple: “Trap Keys” ERC 998 Crypto Composibles NFT
+Authorization is granted w/private Key of .Each Account Holder
+
+Violatr Nodes
+Master Nodes MN
+A Master Node is a full node of Full Wallet
+That keeps the full copy of the blockchain in real-time using zero-knowledge proofs keeps it lite
+And + Increasing privacy of transactions doing instant transactions 		Parties
+Participating in governance and voting “Grammies” i.e Grammy Award
+Enable budgeting and Treasury system in cryptos
+Proof of stake to run an “MN” + VPS/Server to host 24/7, dedicated IP Address + Storage to save blockchain
+
+TrapCha.in Community.ETH Addresses
+Free to join Open use .ETH Address
+How do I sign up? 	How do I join? $10 Purchase ETH
+Register w/.ETH 	How to buy .ETH?
+
+	Automate this------------> 
+Option sign w/us → 1. We set up .ETH address for a fee
+John.ETH *In-App buy 2. You can setup yourname.ETH
+.ETH Address → Auction ←- Direct Then to wiki how to:
+TrapCha.in assumes the network is constantly under attack of DDOS and therefore does not seek to “Validate and Store State” but Only holds a public ledger of Malicious Attack Vector addresses and stores them in a Blacklist Smart Contract and therefore doesn’t keep a record of valid transactions only the ones that have been slashed or “Violates the consensus”. Thus crafting a smaller more nimble protocol based on Zero-knowledge proofs and Violatr Nodes. 
+Node Operators earn “trapcoin” for vigilance in violating bad actors and thus the reward system is robust against attackers because the assumption is that it is always under attack for safety and security precautions as opposed to the idealism and utopic validators and turns every node into a Violator node constantly raising the bar on effectively re-structuring the security acumen of nodes.
+Membership: Violatr “Viol8r” NFT 
+Includes: Root Hash of IAVL Tree in “Block Header”-Design
+Boilerplate
+Yeoman and Blockstack generator See Addendum** Trapcha.in V1
+Public application 	Yo Blockstack React
+Directory 		load user data() access username
+				Profile Class
+
+Polkadot/Substrate/Kusama/Parity/Harmony/Ethermint
+Trapcha.in vs Cosmos IBC BFT QTum
+RapChain IBFT Quorum Main Net
+Trap Exchange Dex Tendermint/Casper/Shasper
+RapChain.io Blockchain Distribution
+RapChain Records “Record Label”
+RapChain.io Get Royalty Payments
+Rap Tokens Buy Tokens to Get Signed up
+TrapCha.in Music Blockchain “Distro Kid”
+TrapChain Records “Record Label”
+TrapCoin Get Royalty Payments
+Trap Tokens Buy Tokens to sign up!
+Traxx Card Producer Royalty Backed Platinum Credit Card
+Raxx Card Business Crypto Credit Card
+Raxx Coin Raxx RAFT Quorum Supply Chain Merchandising Platform for Artist Merch
+
+Stablecoin → RaxxCoin
+Use US Dollar peg Coins <= Wallet containing basket connected to credit card payments
+I.e USDC → Buy 	Pre-sale Airdrop address → Pub Key → HASH
+$1.00 to sign up 	Master Key → Private Key → 
+Exchange Fees? Gas? Tx? D0x? Wei?
+D0x Exchange
+USDC => TrapCoin <= Trap Tokens
+USDC => RapCoin <= TrapTokens
+.ETH Julien.ETH \ An Ethereum address represents an account 
+.ETH Address => Create an Account.
+Private Key:[1,Secp256k1n-1] in the range
+Represented as a (byte array F length 32 in big-endian form)
+Ethereum addresses are hashes of Public Key
+
 
 
 
